@@ -1,3 +1,3 @@
-## Hi there 👋
+## Hey there!! 👋
 
-Welcome to my GitHub Account
+Welcome to my GitHub Account.
